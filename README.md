@@ -1,1 +1,0 @@
-# UCLA-Challenge-3
